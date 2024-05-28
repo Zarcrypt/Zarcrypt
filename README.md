@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Zarcrypt
+- 👀 I’m interested in Cybersecurity
+- 🌱 I’m currently learning Cybersecurity
+- 💞️ I’m looking to collaborate on learning
+- 📫 How to reach me whatsapp
+- ⚡ Fun fact: Formet chef
